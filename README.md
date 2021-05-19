@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pikachu3704
 - 👀 I’m interested in Game
 - 🌱 I’m currently learning THPT
-- 💞️ I’m looking to collaborate on word
+- 💞️ I’m looking to collaborate on world
 - 📫 Reach me: elandor3204@gmail.com
 
 <!---
